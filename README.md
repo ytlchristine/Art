@@ -6,8 +6,7 @@ Hello, welcome to this website! My name is Christine Liu and this site simply go
 ```
 1. Personal Peices
 2. Admired Artists
-4. Music/Songs
-5. Other
+3. Music/Songs
 ```
 
 
@@ -35,7 +34,21 @@ Airi: https://twitter.com/pix_bun
 
 I seriously admire their understanding of composition, color theory, and lighting. I would love to have such vibrant palettes.
 
-
 Po豆: https://twitter.com/psta_0
 
 I love how naturally their colors and their style is very unique! Their pinned peice I love especially because of how satisfying the line art is.
+
+There are more, but I'll just show these for now! :-)
+
+
+
+## Music/Songs
+Actually, I like all types of music (yes, including country, since my dad loves it), so I tend to like most everything I hear. Here are a few songs that I don't find myself getting tired of any time soon:
+
+Jam & Butterfly: https://www.youtube.com/watch?v=SQBuVfTX1ME&ab_channel=DreamPerfectRegime
+
+ここにいる: https://www.youtube.com/watch?v=713nZnpRtA0&ab_channel=Aiobahn
+
+Tom's Diner: https://www.youtube.com/watch?v=bJNxmMk8zvA&ab_channel=SuzanneVega-Topic
+
+丑馬: https://www.youtube.com/watch?v=DrHOlqM-73o&ab_channel=VC%E4%BA%8C%E6%AC%A1%E5%85%83%E0%A4%AELY%E9%B3%B6
