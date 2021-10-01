@@ -31,10 +31,11 @@ I'd love to work on improving on my art (adding backgrounds, rendering further, 
 ## Admired Artists
 I take most of my style's inspiration from various artists that I scross across on the internet, but there are a few artists whose art I really enjoy or from which I would like to get inspiration from! 
 
-```Airi: https://twitter.com/pix_bun```
+Airi: https://twitter.com/pix_bun
 
 I seriously admire their understanding of composition, color theory, and lighting. I would love to have such vibrant palettes.
 
-```Po豆: https://twitter.com/psta_0```
+
+Po豆: https://twitter.com/psta_0
 
 I love how naturally their colors and their style is very unique! Their pinned peice I love especially because of how satisfying the line art is.
